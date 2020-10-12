@@ -2,9 +2,9 @@
 ------
 :heart: :point_right: 【地址二】 ：https://qq.com.niuyeye04.xyz
 ------
-:heart: :point_right: 【地址三】 ：https://qq.com.nyy2020.xyz
+:heart: :point_right: 【地址三】 ：
 ------
-:heart: :point_right: 【地址四】 ：https://nyy.h9w9.com
+:heart: :point_right: 【地址四】 ：
 ------
 :heart: :point_right: 【邮箱联系方式】 ：niuyeye2020@gmail.com
 ------
